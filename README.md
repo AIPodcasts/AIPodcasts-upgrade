@@ -1,4 +1,4 @@
-# 🚀 AIPodcasts review - AIPodcasts MegaPass - AI-Powered Podcast Mastery
+# 🚀 [AIPodcasts review - AIPodcasts MegaPass - AI-Powered Podcast Mastery](https://jvz8.com/c/1708809/416526/)
 
 Turn your podcast ideas into viral content with **MegaPass**, the all-in-one AI platform for podcasters. From scripting to publishing, we automate the grind so you can focus on what matters.
 
